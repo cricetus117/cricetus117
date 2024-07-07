@@ -1,0 +1,3 @@
+👋 Hi, I’m @cricetus117 🐱‍💻
+...
+- ⚡ Fun fact: cats, actually do not have 9 lives, however thanks to their flexible feline body, they can survive very tall falls 🐱‍🏍🐱‍👤
